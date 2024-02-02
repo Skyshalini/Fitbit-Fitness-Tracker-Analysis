@@ -72,3 +72,6 @@ https://drive.google.com/drive/u/0/folders/1nWNiGPtCEwpja3U4f42uyRx5lt08EkOR
    - Continuously assess market trends and technological advancements to ensure Fitbit remains at the forefront of the health and fitness tracking industry.
 
 In conclusion, this strategic integration of identified trends into Fitbit's business objectives positions the company to not only meet current consumer demands but also stay ahead of the curve in a rapidly evolving market.
+
+
+Excel Link: https://drive.google.com/drive/u/0/folders/1flqXHE2JWrya0wD0Y_AGQqbFjmzGmMoW
